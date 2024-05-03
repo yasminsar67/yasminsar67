@@ -2,6 +2,6 @@
 - 👀 Estou interessada em desenvolvimento de jogos, tecnologia e aprendizado contínuo.
 - 🌱 Atualmente estou aprendendo desenvolvimento de jogos utilizando Unreal Engine 5.
 - 💞️ Estou procurando colaborar em projetos de desenvolvimento de jogos, especialmente aqueles que promovem a diversidade e inclusão na indústria.
-- 📫 Você pode me encontrar através do meu e-mail: carolmello721@gmail.com
+- 📫 Você pode me encontrar através do meu e-mail: yasminsar67@gmail.com
 - 😄 Pronomes: Ela/Dela
 - ⚡ Curiosidade: Sou apaixonada por jogos eletrônicos desde a infância e adoro explorar novas tecnologias relacionadas a eles.
